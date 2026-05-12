@@ -1,4 +1,4 @@
-#  
+#  vip restaurant tycoon 3 Script is the best restaurant tycoon 3 Script, featuring auto-upgrade and teleport. Safe and powerful for all your needs.
 
 
 
